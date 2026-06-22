@@ -22,7 +22,7 @@
 
 ## 一、牛逼机场(6.9/月1000G)
 
-官网地址:[点击进入](https://6.66jc.top/#/login?code=iOmQagSA)
+官网地址:[点击进入](http://666.66jc.top/#/login?code=iOmQagSA)
 
 优惠码: **牛逼机场666**
 
